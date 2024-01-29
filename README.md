@@ -15,11 +15,9 @@ Here are some of my publications to convince you that my love to yeast is mutual
 
 -[New horizons in mitochondrial contact site research](https://pubmed.ncbi.nlm.nih.gov/32324151/)
 
-
----
-
 Both projects will are focusing on how organelles (tiny organs inside our cells) communicate for the cell to function properly
 
+---
 
 But don't be mistaken! I am not just a yeast lover.
 I am a parent of a dog that I already discovered **HIS main function**- Sleeping.
